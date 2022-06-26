@@ -1,1 +1,0 @@
-# s21_tdg_soloudgo
